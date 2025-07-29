@@ -11,3 +11,10 @@ its funny too what a miserable and UGLY-ASS human being that just wont go away
 my theory is that when he feels like a big fking loser, he edits his own wiki page to get some power back
 
 something happened where he realized, he's a big fking loser
+
+# this man has no friends (that would edit his wikipedia page), does not live a fulfilling life
+
+# he's just a big loser
+
+![friends](friends.png)
+
