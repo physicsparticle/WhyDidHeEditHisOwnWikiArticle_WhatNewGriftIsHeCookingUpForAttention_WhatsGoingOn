@@ -24,3 +24,4 @@ ignore him, dont let anything that happened, anything he said or did get to u, h
 
 ![friends](friends.png)
 
+# "they hate but they broke tho" he's gonna be hella broke
