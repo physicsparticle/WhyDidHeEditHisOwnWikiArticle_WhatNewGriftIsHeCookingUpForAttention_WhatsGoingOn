@@ -16,5 +16,11 @@ something happened where he realized, he's a big fking loser
 
 # he's just a big loser
 
+# nobody cares about him, nobody wants to send him voice notes, nobody wants to send him songs, nobody wants to send him pictures, he's absolutely a total fking loser in life
+
+# that's what he's been hiding all these years, that nobody likes him bc hes disgusting
+
+ignore him, dont let anything that happened, anything he said or did get to u, he will be annihilated in court, it will absolutely happen that way
+
 ![friends](friends.png)
 
